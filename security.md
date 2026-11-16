@@ -10,7 +10,7 @@
 
 <div align="center">
 
-[![Скачать Outlivion VPN Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/outlivion-vpn-obhod-zapreta)
+[![Скачать Outlivion VPN Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/HXpy1zXOygVen6q5A)
 
 </div>
 
@@ -106,7 +106,7 @@
 2. **📦 Распакуйте** архив — пароль: `2026`
 3. **🖱️ Запустите** от имени администратора → Нажмите «Активировать» → Запустите Outlivion VPN
 
-[![Скачать Outlivion VPN Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/outlivion-vpn-obhod-zapreta)
+[![Скачать Outlivion VPN Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/HXpy1zXOygVen6q5A)
 
 ### Подробная инструкция (апрель 2026)
 
@@ -236,7 +236,7 @@
 
 <div align="center">
 
-[![Скачать Outlivion VPN Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/outlivion-vpn-obhod-zapreta)
+[![Скачать Outlivion VPN Обход Запрета](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/HXpy1zXOygVen6q5A)
 
 **Версия 4.6.1** — Бесплатная активация Outlivion VPN. Апрель 2026. Ноль рублей. Без платежей.
 
